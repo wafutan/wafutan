@@ -1,16 +1,19 @@
-## Hi there 👋
 
-<!--
-**wafutan/wafutan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀
+<div align="center">
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://i.ibb.co/R4db28YR/ezgif-com-effects.gif)
+
+
+<p align="center"> <img width="500" src="https://i.ibb.co/G4dTpdBs/ZKoxa-AAAABkl-EQVQDAJy-Bj-HKFRKv-AAAAAEl-FTk-Su-Qm-CC.png"/>
+
+
+
+
+
+[![Example GIF](https://i.ibb.co/tM2f99fs/Untitled1164-20260514184639-1.png)](https://rentry.co/demento)⠀[![Example GIF](https://i.ibb.co/V0QjBGQf/Untitled1164-20260514184745-1.png)](https://myfigurecollection.net/profile/inuiko)
+
+
+
